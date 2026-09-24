@@ -1,1 +1,1 @@
-# Working on Omikron
+# Please dont ask for updates!
